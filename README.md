@@ -1,1 +1,1 @@
-Ok what if i add a readme
+smth smth my worldbuilding project smth smth
